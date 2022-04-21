@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JoyDecock1001
+- 👋 Hi, I’m Praneeth Sharma --> @JoyDecock1001
 - 👀 I’m interested in ...Coding <-> Earning
 - 🌱 I’m currently learning ...M.E.R.N💻
 - 💞️ I’m looking to collaborate on ...Coding
